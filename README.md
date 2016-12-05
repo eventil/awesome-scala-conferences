@@ -4,7 +4,7 @@
 
 ## 2016
 
-### January
+### December
 
 
 | Name  | Date | Location | CFP Deadline |
